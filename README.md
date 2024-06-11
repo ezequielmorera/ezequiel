@@ -9,4 +9,4 @@ Você vc entra em contato comigo
 
 
 
-![](https://tenor.com/pt-BR/view/american-psycho-patrick-bateman-american-psycho-gif-7212093)
+![](https://media1.tenor.com/m/5lLcKZgmIhgAAAAC/american-psycho-patrick-bateman.gif)
